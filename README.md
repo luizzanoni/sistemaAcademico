@@ -11,4 +11,3 @@ Data realized: 21/10/2022
 
 
 
-
